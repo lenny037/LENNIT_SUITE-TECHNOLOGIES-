@@ -1,4 +1,4 @@
-# LENNIT_SUITE-TECHNOLOGIES-
+# Lennit_Suite Technologies 
 a platform for highly advanced fully Self Sufficient,Self Reliant Self Enhancing AI from autonomous training which fully intergates artificial intelligence driven modules to work in unison to run,maintain,and develop in the highly complex cryptocurrency infrastructures that is continuously evolving as you read this second.
 
 LENNIT_SUITE TECHNOLOGIES 
